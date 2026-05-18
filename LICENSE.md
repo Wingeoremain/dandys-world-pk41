@@ -1,4 +1,4 @@
-#  
+#  Seguro bee swarm simulator scripts é o melhor bee swarm simulator scripts com morte instantânea e acesso a servidor privado. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
